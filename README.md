@@ -1,1 +1,1 @@
-# Strawberry-shortcake
+# Strawberry-shortcake, one of the sweetest and most savoury of cakes
